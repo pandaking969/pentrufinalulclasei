@@ -1,0 +1,2 @@
+# pentrufinalulclasei
+Pentru finalul clasei
